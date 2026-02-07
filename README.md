@@ -1,3 +1,6 @@
+# ⚠️ ADVERTENCIA: CONTENIDO DE PAYASOS
+Este juego es un examen para obtener una **máscara y licencia de payaso**. Contiene imágenes de payasos que pueden afectar a personas con **coulrofobia**. ¡Juega bajo tu propia discreción!
+
 # 🤡 Mi última paya-entrevista
 
 ¡Bienvenido a mi novela visual! En esta aventura, tomas el papel de un **payaso aspirante** que ya ha superado varias pruebas. Ahora te encuentras en la fase final y más difícil: la entrevista con el temido **"Mister Entrevistador"**.
